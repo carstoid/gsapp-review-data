@@ -1,0 +1,15 @@
+---
+Title: 900km Nile City
+---
+
+**The Nile Valley starts in Aswan and ends in Cairo. It is about 900 km long.**
+The “Nile City” is a series of settlements located in the Nile Valley. At the moment, this system can only be called a “city” by analogy; to call it a “city” is already a project, even if – at the same time – it is just a matter of fact.
+So far, the Nile City has developed in the Nile Valley by following the rules established for it in the Neolithic. The Nile City is now at the point of changing the Nile Valley.
+There was a revolution in Egypt last year. The political situation is still very uncertain, however now is probably the best – and maybe only – moment in the last fifty years (since the previous revolution) for imagining a project for the Nile City.
+A design for the Nile City needs to be radical and yet realistic. It is necessary to look at the current situation with optimism, but without illusions. We assume: no big technological leap forward, no sudden introduction of bureaucratic efficiency, no change of in the valley’s property structure, no demolition of villages, no massive relocation of peasants into the desert. At the same time, we will not use tradition as an excuse: the Nile City needs to change in order to survive, and this transformation cannot but impact the economy and, most importantly, the Egyptian family structure.
+The population of the Nile City is expected to grow in the coming decades by 1.8% per year. This increase in population will produce a concomitant expansion of the existing villages and, consequently, will further reduce the amount of agricultural land. In the years to come, the Nile Valley will likely need to feed a larger population with less cultivable terrain.
+The Nile Valley has the clarity of a scientific experiment. The variables are reduced to a minimum: there is only fertile land or desert, with very little in between. Though somehow primitive, the Nile Valley is entirely artificial. Water comes only from the Nile. Agriculture is possible only because of irrigation. Apart from agricultural expansions into the desert (which is possible but problematic), an increasing population means expanding settlements and shrinking fields.
+The Nile Valley is a laboratory of the future, with all its dramatic challenges didactically on display in their simplest form.
+Given that the water of the Nile is limited, there is a possible ‘saturation point’ of the equation represented by four interconnected variables: water, agriculture, population and buildings. The limit to how much these variables can vary is complete urbanization, which would immediately lead to extinction.
+Linked to this equation is a group of opportunities: mobility, education, energy optimization, economic diversification. All of these opportunities can help to progressively unlock the Nile City’s current condition of stagnation. The key, of course, is education.
+In the Nile Valley, the alternatives are not architecture or revolution, but action or exhaustion, planning or extinction.
